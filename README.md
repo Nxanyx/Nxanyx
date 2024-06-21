@@ -11,7 +11,7 @@
 👨🏻‍🏫 My school is [I.T.I.S Alessandro Volta](
 https://www.itisvoltanapoli.edu.it/)
 
-🚀 Currently working on **@PacificMC**
+🚀 Currently working on **GalaxyStudios**
 
 **My Skills**
 

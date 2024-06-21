@@ -6,8 +6,6 @@
 
 🎓 I'm 15 years old
 
-👑 Owner and Senior Developer on **@PacificMC**
-
 👨🏻‍💻 Passionate of CyberSecurity, Linux and Create Simple malware
 
 👨🏻‍🏫 My school is [I.T.I.S Alessandro Volta](

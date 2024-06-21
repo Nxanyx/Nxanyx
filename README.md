@@ -19,7 +19,7 @@ https://www.itisvoltanapoli.edu.it/)
 
 **Project**
 
-🧙🏻‍♂️ [PacificMC](discord.pacificmc.it)
+🧙🏻‍♂️ [GalaxyStudios](discord.nxanyx.it)
 
 **Speak with me!**
 
